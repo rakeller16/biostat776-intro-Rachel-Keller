@@ -5,7 +5,7 @@ Hello! I am a second-year infectious disease epidemiology MHS student at JHBSPH.
 # Fun Facts About Me
 1. I have a gray cat named Octavia.
 2. I am very interested in tickborne diseases.
-3. I am learning how to rollerskate. 
+3. I am learning how to roller skate. 
 4. I enjoy reading in my free time.
 5. I work at a bubble tea shop on the weekends.
 # Something I Find Interesting
